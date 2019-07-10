@@ -1,2 +1,2 @@
 # SonOfThanos
-°) game Son Of Thanos
+°)  Game Son Of Thanos
