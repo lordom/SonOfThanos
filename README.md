@@ -1,2 +1,2 @@
-# programacion_III
-°)
+# SonOfThanos
+°) game Son Of Thanos
